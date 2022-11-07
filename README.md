@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sovietpigeon7
 - 👀 I’m interested in milf's
 - 🌱 I’m currently learning sex
-- 💞️ I’m looking to collaborate on sex
+- 💞️ I’m looking to collaborate on gay sex
 - 📫 How to reach me Ohio resident
 
 <!---
